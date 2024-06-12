@@ -1,4 +1,4 @@
-## spencer reid te amo 👋
+## spencer reid te amo 🫀
 
 <!--
 **santiawns/santiawns** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
